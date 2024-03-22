@@ -1,1 +1,1 @@
-# Hello, world!
+I sudy in Netology and Codify
