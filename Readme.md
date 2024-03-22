@@ -1,1 +1,1 @@
-I sudy in Netology and Codify
+GIT is great!
